@@ -1,1 +1,3 @@
-༼ つ ◕_◕ ༽つfulltime programmer- sometimes writer - all-time clueless☜(ﾟヮﾟ☜)
+༼ つ ◕_◕ ༽つ fulltime programmer
+sometimes writer
+all-time clueless ☜(ﾟヮﾟ☜)
